@@ -2,7 +2,9 @@
 ## A User Manual for working with me.
 
 ## Conditions I like to work in
-I mostly work with headphones listening to house/techno if I'm coding or this piano playlist if I'm writing. I'm pretty happy working anywhere but actually prefer a busy office or coffee shop to complete silence. 
+I mostly work with headphones listening to house/techno if I'm coding or this piano playlist if I'm writing. 
+
+I'm pretty happy working anywhere but actually prefer a busy office or coffee shop to complete silence. 
 
 ## The times/hours I like to work
 I hate mornings and I'd always prefer to have a meeting in the afternoon. 
