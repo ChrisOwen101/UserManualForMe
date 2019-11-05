@@ -2,7 +2,7 @@
 ## A User Manual for working with me.
 
 ## Conditions I like to work in
-I mostly work with headphones listening to house/techno if I'm coding or this piano playlist if I'm writing. 
+I mostly work with headphones listening to [house](https://open.spotify.com/playlist/2ZZHMHTHR1uH1eHYnM5wXv?si=M5d3ZDcLQ5qFIekvTZwXAA)/[techno](https://open.spotify.com/playlist/527OLqNKEXYOYHQ5OlwNAq?si=tsAVNJyFSPGhgHsHRlNyjw) if I'm coding or [this piano playlist](https://open.spotify.com/playlist/37i9dQZF1DX4sWSpwq3LiO) if I'm writing. 
 
 I'm pretty happy working anywhere but actually prefer a busy office or coffee shop to complete silence. 
 
