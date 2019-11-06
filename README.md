@@ -16,7 +16,7 @@ Flexible working hours are very important to me.
 ## The best ways to communicate with me
 Slack is the quickest way to get a response from me. Please don't hesitate to reach out at any time, as I'll put the phone on silent if I'm busy, and am always happy to help a colleague out of hours. I find the idea of you being blocked on something that I could be helping with more disturbing than the idea of being asked for thing out of hours.
 
-I don't like answering my phone, as I'm often in spaces which are either too noisy for that or so quiet that my conversation would be forced on those around me. I do read texts though, so SMS or WhatsApp are cool.
+Phone calls are fine but I'd rather we book in a slot and then chat unless it's really urgent so I can plan a little first. I find asyncronous communication much less stressfull.
 
 I stay on top of my emails daily, so for anything non-urgent, feel confident that your email will get a reply within a workday or so.
 
