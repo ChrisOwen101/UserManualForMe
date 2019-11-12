@@ -49,6 +49,6 @@ I'm also really into ecology, the climate crisis and how technology can help sol
 
 Over the past few years I've lived in London, Athens, Cape Town, Berlin and Lisbon. Currently I live in a warehouse with 11 housemates. 
 
-I've listened to over 60 days of podcasts over the past three years.
+I've listened to over 71 days of podcasts over the past five years.
 
 
