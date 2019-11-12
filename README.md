@@ -30,7 +30,7 @@ Face to face is best, in lieu of that a video call and if that's hard, then a ph
 ## Things I need
 I'm something of an optimist and find it hard when other people are overly pessimistic. I'd rather plan for the best case and then actively manage the worst rather than the other way around. 
 
-Other than that, I think I'm a very easy going person to live with!
+Other than that, I think I'm a very easy going person to work with!
 
 ## Things I struggle with
 I'm an introverted extrovert (although I don't put much stock in that kind of classification) which means that I take a while to warm up to people but generally "recharge" by interacting with people. If I seem quiet, it's not being I don't like you! It just takes me a while. 
