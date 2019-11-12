@@ -44,6 +44,8 @@ I love collaborating on things, be it brainstorming sessions, pair programming o
 
 I find one-on-one teaching or mentoring deeply fulfilling and rewarding. The feeling of having somebody go from not understanding something to understanding is fantastic. 
 
+Beening in a [flow state](https://en.wikipedia.org/wiki/Flow_(psychology)) is deeply satisifying for me.
+
 ## Other things to know about me
 I'm also really into ecology, the climate crisis and how technology can help solve these challenges. Chat to me about it!
 
