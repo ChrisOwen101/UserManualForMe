@@ -1,6 +1,3 @@
-# User Manual For Chris Owen
-## A User Manual for working with me.
-
 ## Conditions I like to work in
 I'm pretty happy working anywhere but actually prefer a busy office or coffee shop to complete silence. I quite like quiet background music in an office. 
 
