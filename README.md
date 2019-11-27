@@ -20,7 +20,7 @@ If we're in person, I'm always happy to be interrupted and I'll tell you if now 
 ## The ways I like to receive feedback
 The only way I respond well to feedback is by positioning us against the problem rather you against me. We're always working towards the same goal! I'm completely fine with constructive feedback in the form of "Have you thought of..." rather than "This is bad and should be re-written...".
 
-I consider all feedback a learning opportunity, and do my very best not to get defensive. It can sometimes take me a moment to process feedback and return with a fresh mind however. 
+I consider all feedback a learning opportunity, and do my very best not to get defensive. It can sometimes take me a moment to process feedback and return with a fresh mind. 
 
 Face to face is best, in lieu of that a video call and if that's hard, then a phone call.
 
@@ -41,7 +41,7 @@ I love collaborating on things, be it brainstorming sessions, pair programming o
 
 I find one-on-one teaching or mentoring deeply fulfilling and rewarding. The feeling of having somebody go from not understanding something to understanding is fantastic. 
 
-Beening in a [flow state](https://en.wikipedia.org/wiki/Flow_(psychology)) is deeply satisifying for me.
+Being in a [flow state](https://en.wikipedia.org/wiki/Flow_(psychology)) is deeply satisifying for me.
 
 ## Other things to know about me
 I'm also really into ecology, the climate crisis and how technology can help solve these challenges. Chat to me about it!
